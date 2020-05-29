@@ -8,7 +8,7 @@ vielleicht ist es tatsächlich zwei Uhr Hannover Zeit,
 
 aber für mich sind meine Schwankungen den einzigen legitimen Uhrzeigern. 
 
-Sechs Uhr meiner Stimmung heißt, dass meine Liebe und mein Hasse auf dich schon sechsmal sowohl mein Herz als auch meine Uhr klopfte. 
+Sechs Uhr meiner Stimmung heißt, dass meine Liebe und mein Hass auf dich schon sechsmal sowohl mein Herz als auch meine Uhr klopfte. 
 
 Momentan, um sechs Stimmungsuhr möchte ich wahrhaftig beim Einschlafen deine weichen rosa Lippen in meinem Mund behalten, 
 
